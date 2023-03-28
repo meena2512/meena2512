@@ -1,9 +1,6 @@
 👋 Hi, I’m Meena G
 
 
-👀 I’m interested in coding, Coding, CODING...
-
-
 📫 Reach out to me through https://www.linkedin.com/in/meenagopi
 
 <!---
